@@ -1,4 +1,4 @@
-### Hi there 👋
+### Yo!
 
 I am Erfan Kheyrollahi. a nerd and geek boy who loves computers, GNU/Linux, Anime, and other stuff you already know about!
 
